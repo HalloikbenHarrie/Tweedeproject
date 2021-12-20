@@ -1,1 +1,1 @@
-Dit is een project!
+Dit is een project van Rik en Inge!
