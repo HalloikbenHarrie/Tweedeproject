@@ -1,2 +1,2 @@
-Dit is een project van Rik en Inge!
-Hier hebben we onze twee regel :-)
+Dit is een project van Inge en Rik!
+He kijk een nieuwe regel, nogmaals! :-)
