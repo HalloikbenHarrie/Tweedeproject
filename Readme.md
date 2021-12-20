@@ -1,1 +1,1 @@
-Dit is een project van Rik en Inge!
+Dit is een project van Inge en Rik!
